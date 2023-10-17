@@ -1,2 +1,41 @@
 # CSE-B-2023
 Ayush Malik - 4th year - CSE A - 8368191862.  
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Khushi Srivastava - CSE-B - 1st year - 2023B0101159
