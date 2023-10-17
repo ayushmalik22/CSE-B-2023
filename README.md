@@ -1,2 +1,3 @@
-# CSE-B-2023
-Ayush Malik - 4th year - CSE A - 8368191862.  
+# CSE-B-2023 
+Admission no. - 2023B0101143
+MAYANK SINGH
